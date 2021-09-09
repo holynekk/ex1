@@ -4,7 +4,7 @@
 
 
 
-
+1. bu dunyayaa yasamaya degil izlemeye gelmisiz moruk.
 
 
 
